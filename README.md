@@ -1,2 +1,0 @@
-# tongdaiglyco.github.io
-tongdaiglyco
